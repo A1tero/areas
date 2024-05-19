@@ -1,5 +1,8 @@
 # _⚝*Altero areas*⚝_
 
+#85.333336x48
+![](https://i.postimg.cc/wxy2t1p4/image.png)
+
 # 76x47.5
 ![](https://i.postimg.cc/fWGPHr2v/Open-Tablet-Driver-UX-Wpf-v7ysb8-Wj-NJ.png)
 
