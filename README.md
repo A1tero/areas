@@ -1,6 +1,6 @@
 # _⚝*Altero areas*⚝_
 
-#85.333336x48
+# 85.333336x48
 ![](https://i.postimg.cc/wxy2t1p4/image.png)
 
 # 76x47.5
