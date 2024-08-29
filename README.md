@@ -1,5 +1,9 @@
 # _⚝*Altero areas*⚝_
 
+# whitecat style
+![](https://kappa.lol/QzbOI)
+![](https://kappa.lol/Knobx)
+
 # 85.333336x48
 ![](https://i.postimg.cc/wxy2t1p4/image.png)
 
