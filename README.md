@@ -1,6 +1,6 @@
 # _⚝*Altero areas*⚝_
 
-# whitecat style
+# big area + filters
 ![](https://kappa.lol/QzbOI)
 ![](https://kappa.lol/Knobx)
 
