@@ -1,5 +1,9 @@
 # _⚝*Altero areas*⚝_
 
+# tekkito area edit
+![](https://i.postimg.cc/cJqwbHL9/image.png)
+![](https://i.postimg.cc/hjcxK5xV/image.png)
+
 # big area + filters
 ![](https://kappa.lol/QzbOI)
 ![](https://kappa.lol/Knobx)
